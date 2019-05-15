@@ -1,0 +1,3 @@
+- **Hard** worker 
+- _Quick_ learner
+- _**Amazing coworker**_
