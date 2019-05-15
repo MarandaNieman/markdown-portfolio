@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+1. Reading 
+2. Hiking 
+    -In Colorado :heart:
+3. Coding
